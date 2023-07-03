@@ -1,6 +1,6 @@
 # Glitchy Muse
 
-(Intro)
+(Intro) <br>
 In a digital world where glitches unfold, <br>
 A developer's heart was about to be sold. <br>
 He met a girl, a coding muse so rare, <br>
