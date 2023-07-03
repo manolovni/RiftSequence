@@ -1,4 +1,4 @@
-# Glichy Muse
+# Glitchy Muse
 
 (Intro)
 In a digital world where glitches unfold, <br>
