@@ -1,9 +1,9 @@
 # Hardcoder
 
-I'm a coding machine, typing lines all-day
-My fingers never stop, I don't need no break
-I'm a master of syntax, my code is clean
-I'm a programmer, the best you've ever seen
+I'm a coding machine, typing lines all-day <br>
+My fingers never stop, I don't need no break <br>
+I'm a master of syntax, my code is clean <br>
+I'm a programmer, the best you've ever seen <br>
 
 I fly with no effort, the rig is my stud
 My code’s optimized, it runs like a drug
