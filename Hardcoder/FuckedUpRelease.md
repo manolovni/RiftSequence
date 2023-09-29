@@ -32,10 +32,7 @@ Though the release has crumbled, we won't compromise. <br>
 We'll fix what's broken, we'll mend the fray, <br>
 The fire within us won't fade away. <br>
 
-Through the wreckage we rise, determination in our eyes, <br>
-Though the release has crumbled, we won't compromise. <br>
-We'll fix what's broken, we'll mend the fray, <br>
-The fire within us won't fade away. <br>
+In the face of defeat, we find our might x 4 <br>
 
 In the face of defeat, we find our might, <br>
 As developers united, we'll make it right. <br>
@@ -44,4 +41,4 @@ For failure won't define us, we won't accept. <br>
 We'll rise from the ashes, stronger than before, <br>
 In this fucked up release, our passion will endure. <br>
 
-// add about hot fix at the end and log guitar solo
+(Guitar Solo) <br>
