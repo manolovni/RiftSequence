@@ -44,3 +44,9 @@ With every line written, I'm closer to the prize, <br>
 A masterpiece in the making, reaching for the skies. <br>
 Inspiration and hope guide my every stride, <br>
 As I embark on this journey, with muse as my guide. <br>
+
+(Outro) <br>
+This time it's it is all new, I feel it in my core, <br>
+A surge of excitement like never before. <br>
+A rock foundation, I'll build it with care, <br>
+I live in this project, together we'll dare. <br>
