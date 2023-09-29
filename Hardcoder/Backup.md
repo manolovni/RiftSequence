@@ -34,7 +34,6 @@ The last line of defense, now we're set for the fall. <br>
 All hopes are crushed, the error's profound, <br>
 In the ashes of the database, no recovery is found. <br>
 
-(Outro) <br>
 Stranded in the silence, staring at the screen, <br>
 In the tale of the failed backup, we're the lost and the unseen. <br>
 The data's gone, the backup's lost, the story's been told, <br>
@@ -50,3 +49,18 @@ That's been sold <br>
 The failure of the backup <br>
 
 (Guitar Solo) <br>
+
+(Outro) <br>
+The failure of the backup <br>
+That's been sold <br>
+The failure of the backup <br>
+That's been sold <br>
+The failure of the backup <br>
+That's been sold <br>
+The failure of the backup <br>
+That's been sold <br>
+The failure of the backup <br>
+That's been sold <br>
+The failure of the backup <br>
+That's been sold <br>
+
