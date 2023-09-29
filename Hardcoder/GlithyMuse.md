@@ -33,12 +33,6 @@ Her pixels dance, but true love remains. <br>
 Through the crashes and bugs, we'll rise above, <br>
 A developer's heart, entangled in love. <br>
 
-(Bridge)
-In a world of algorithms and binary code, <br>
-Their love defied logic, a tale yet untold. <br>
-Through the lines of syntax, he sought a solution, <br>
-To mend her broken fragments, love's sweet restitution. <br>
-
 (Guitar Solo) <br>
 
 In a final showdown, he fixed her crashing heart, <br>
