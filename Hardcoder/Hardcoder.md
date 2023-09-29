@@ -21,6 +21,11 @@ I'm a programming beast, It never gets old <br>
 I'm a master of logic, I solve every task <br>
 I'm a hardcore coder, my stuff built to last <br>
 
+I'm a coding machine, typing lines all-day <br>
+My fingers never stop, I don't need no break <br>
+I'm a master of syntax, my code is clean <br>
+I'm a programmer, the best you've ever seen <br>
+
 Chorus: <br>
 I'm a hardcore coder, I don't mess around <br>
 My code is bulletproof, it never goes down <br>
