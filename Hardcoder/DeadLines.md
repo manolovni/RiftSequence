@@ -32,6 +32,8 @@ But the world won't wait for our introspection. <br>
 Money and deadlines, they hold us tight, <br>
 We can't reach the heights we dream in the night. <br>
 
+(Guitar Solo) <br>
+
 (Bridge) <br>
 We yearn for the elegance, the flawless design, <br>
 But reality's grip won't release its bind. <br>
