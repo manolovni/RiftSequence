@@ -32,6 +32,8 @@ My code is bulletproof, it never goes down <br>
 I'm a programming god, I rule the machine <br>
 I'm a hardcore coder, the ultimate dream <br>
 
+(Guitar Solo) <br>
+
 I'm a programming god, I rule the machine x 4 <br>
 I'm a programming god x 4 <br>
 
