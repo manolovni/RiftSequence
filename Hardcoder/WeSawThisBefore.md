@@ -37,7 +37,7 @@ Guitar Solo<br>
 
 Though the novelty may fade, we'll carry on strong,<br>
 For in the heart of rock, our spirits belong.<br>
-We'll create our own surprises, with power untamed,<br>
+We'll create our own fitchies, with power untamed,<br>
 Reigniting the fire, the passion unchained.<br>
 
 (Chorus)<br>
