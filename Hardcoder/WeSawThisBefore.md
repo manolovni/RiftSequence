@@ -35,14 +35,13 @@ Embracing the rhythm, breaking the chains.<br>
 (Bridge)<br>
 Guitar Solo<br>
 
+Though the novelty may fade, we'll carry on strong,<br>
+For in the heart of rock, our spirits belong.<br>
+We'll create our own surprises, with power untamed,<br>
+Reigniting the fire, the passion unchained.<br>
+
 (Chorus)<br>
 No more illusions, no more surprise,<br>
 We've seen it all through jaded eyes.<br>
 But still, we rock, with fire in our veins,<br>
 Embracing the rhythm, breaking the chains.<br>
-
-(Outro)<br>
-Though the novelty may fade, we'll carry on strong,<br>
-For in the heart of rock, our spirits belong.<br>
-We'll create our own surprises, with power untamed,<br>
-Reigniting the fire, the passion unchained.<br>
