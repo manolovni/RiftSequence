@@ -49,7 +49,7 @@ Push, push, push, push, push, push, push it x 3 <br>
 (Guitar Solo) <br>
 
 (Outro) <br>
-Hot fix, it's a risky game, <br>
+Hotfix, it's a risky game, <br>
 Some get the glory, some get the blame. <br>
 But in the end, it’s the thrill of the race, <br>
-Hot fix fire, setting the pace. <br>
+Hotfix fire, setting the pace. <br>
