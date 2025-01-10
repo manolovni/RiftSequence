@@ -11,7 +11,7 @@ The possibilities endless, the canvas so vast, <br>
 I dive into the unknown, my heart beating fast. <br>
 
 (Chorus) <br>
-This time it's it is all new, I feel it in my core, <br>
+This time it's all new, I feel it in my core, <br>
 A surge of excitement like never before. <br>
 A rock foundation, I'll build it with care, <br>
 I live in this project, together we'll dare. <br>
@@ -27,7 +27,7 @@ With determination burning, fueling my drive, <br>
 I'll breathe into project, it will come alive. <br>
 
 (Chorus) <br>
-This time it's it is all new, I feel it in my core, <br>
+This time it's all new, I feel it in my core, <br>
 A surge of excitement like never before. <br>
 A rock foundation, I'll build it with care, <br>
 I live in this project, together we'll dare. <br>
@@ -46,7 +46,7 @@ Inspiration and hope guide my every stride, <br>
 As I embark on this journey, with muse as my guide. <br>
 
 (Outro) <br>
-This time it's it is all new, I feel it in my core, <br>
+This time it's all new, I feel it in my core, <br>
 A surge of excitement like never before. <br>
 A rock foundation, I'll build it with care, <br>
 I live in this project, together we'll dare. <br>
